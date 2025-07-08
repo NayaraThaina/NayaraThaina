@@ -5,6 +5,8 @@
 - 💼 Buscando oportunidades na área de desenvolvimento
 - 📫 E-mail para contato: nayaratainasantos@outlook.com
 
+![gif](https://media.tenor.com/s_tDZfyIfW0AAAAM/cat-computer.gif)
+
 
 
 
